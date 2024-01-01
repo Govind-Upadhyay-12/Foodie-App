@@ -1,0 +1,7 @@
+![Screenshot 2024-01-01 145112](https://github.com/Govind-Upadhyay-12/Foodie-App/assets/119063599/2ff0ffcb-2769-42a9-98c7-e6dee7f99d52)
+![Screenshot 2024-01-01 145129](https://github.com/Govind-Upadhyay-12/Foodie-App/assets/119063599/36f17fd4-e5fd-4d11-923f-bfab156f69ac)
+![Screenshot 2024-01-01 145536](https://github.com/Govind-Upadhyay-12/Foodie-App/assets/119063599/bfc0764c-1a10-4a4a-b3f6-8197e4d54ea2)
+![Screenshot 2024-01-01 145549](https://github.com/Govind-Upadhyay-12/Foodie-App/assets/119063599/c734c07c-e83b-4e6f-b2fd-a853dc852db7)
+![Screenshot 2024-01-01 145606](https://github.com/Govind-Upadhyay-12/Foodie-App/assets/119063599/0b547f49-b7bf-4de7-bc9e-18d4336f13e1)
+![Screenshot 2024-01-01 145622](https://github.com/Govind-Upadhyay-12/Foodie-App/assets/119063599/fb93176a-b2c2-47f7-b22e-288b791937e5)
+![Screenshot 2024-01-01 145637](https://github.com/Govind-Upadhyay-12/Foodie-App/assets/119063599/af015c02-dfca-4ae8-a3a1-71257a10ecb9)
